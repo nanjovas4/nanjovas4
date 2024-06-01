@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...Defi Finance 
 - 📫 How to reach me ...writte me 
 - 😄 Pronouns: ...my name
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... I am learning criptocurrencies now
 
 <!---
 nanjovas4/nanjovas4 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
